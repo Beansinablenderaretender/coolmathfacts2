@@ -41,3 +41,14 @@ https://loader.to/en65/1080p-video-downloader.html     youtube
 
 
 
+https://pixlr.com/x/
+
+
+https://www.duolingo.com/learn
+
+
+
+
+
+
+
